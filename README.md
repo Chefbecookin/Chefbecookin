@@ -6,4 +6,4 @@
 
 ![teehee](https://github.com/Chefbecookin/Chefbecookin/blob/main/74ea79a32a06aa9e81fd886c8a48ae95.gif)
 
-![pan](https://github.com/Chefbecookin/Chefbecookin/blob/main/image1.gif)
+![pan](https://github.com/Chefbecookin/Chefbecookin/blob/main/image1.gif)![genderfluid](https://github.com/Chefbecookin/Chefbecookin/blob/main/image0-1.gif)
