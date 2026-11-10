@@ -9,5 +9,7 @@
 
 ![teehee](https://github.com/Chefbecookin/Chefbecookin/blob/main/74ea79a32a06aa9e81fd886c8a48ae95.gif)
 
+![plaguedrblinkie](https://github.com/Chefbecookin/Chefbecookin/blob/main/0276-washhands.gif)
+
 ![jimmy](https://github.com/Chefbecookin/Chefbecookin/blob/main/writing-jimmy-valmer.gif)
 ![eric](https://github.com/Chefbecookin/Chefbecookin/blob/main/south-park.gif)
