@@ -10,3 +10,4 @@
 ![genderfluid](https://github.com/Chefbecookin/Chefbecookin/blob/main/image0-1.gif)
 
 ![jimmy](https://github.com/Chefbecookin/Chefbecookin/blob/main/writing-jimmy-valmer.gif)
+![eric](https://github.com/Chefbecookin/Chefbecookin/blob/main/south-park.gif)
