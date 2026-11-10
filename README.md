@@ -9,5 +9,7 @@
 
 ![teehee](https://github.com/Chefbecookin/Chefbecookin/blob/main/74ea79a32a06aa9e81fd886c8a48ae95.gif)
 
+![cartmanblinkie](https://github.com/Chefbecookin/Chefbecookin/blob/main/tumblr_651abe64cd11b08804d4dc543615fb62_dd4a0996_640.gif)
+
 ![jimmy](https://github.com/Chefbecookin/Chefbecookin/blob/main/writing-jimmy-valmer.gif)
 ![eric](https://github.com/Chefbecookin/Chefbecookin/blob/main/south-park.gif)
